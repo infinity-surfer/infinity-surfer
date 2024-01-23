@@ -10,7 +10,7 @@ Femsexual = Attracted to cisgirls and all natural tgirls (I'd say fem stands for
 Cisgender = A person whose gender identity corresponds to their sex assigned at birth.
 
 <details> 
-<summary>"Take the red pill to find out more" ᴄʟɪᴄᴋ ʜᴇʀᴇ</summary>
+<summary>${\textsf{\color{#1383f2}"Take the red pill to find out more"}}$ ${\small \textsf{\color{#0066CC}ᴄʟɪᴄᴋ ʜᴇʀᴇ}}$</summary>
 
 ## Guhl
 
