@@ -20,7 +20,7 @@ If you look like a dude, I wouldn't be into you, as simple as that. I expect ppl
 
 ## Relationships
 
-Why am I like this you might think XDD Well, I'm not to blame. It's b/c I have tried the love thing. The relationship lasted almost a decade. Now I focus more on the fun aspect. I was very serious in the past about having a strong bond made out of love. And wanted it all to be perfect, creating a future together.. But it was a child's dream. Now it's rly just a bonus that I won't depend on for my happiness. But rather just enjoy as it comes and goes. I'd say that I'm still as loyal as ever though.
+Why am I like this you might think XDD Well, I'm not to blame. It's b/c I have tried the love thing. The relationship lasted almost a decade. Now I focus more on the fun aspect. I'd like to be submissive when I get a trans gf. I'll let her decide when she wants head. She may even tie my hands behind my back and put a mouth spreader on me while I kneel if she wishes. I was very serious in the past about having a strong bond made out of love. And wanted it all to be perfect, creating a future together.. But it was a child's dream. Now it's rly just a bonus that I won't depend on for my happiness. But rather just enjoy as it comes and goes. I'd say that I'm still as loyal as ever though.
 
 To me a bond made out of love should last forever, even when beauty fades. That nice feeling is just how it starts, not really something to depend on. It's about the bond, the promises partners make, resolving issues rather than giving up, and staying loyal ofc. Sticking by eachother's side for a lifetime, through good and bad, that is real love 😊 Even though I'm inexperienced with tgirls, I do prefer them now. My love for them comes easy. Cisgirls on the other hand, I'd need a bit of a miracle to feel love again. But I definitely don't want kids anymore, the world sucks too much.
 
@@ -48,6 +48,7 @@ THE VOID                              | N/A
 
 ## Main hobbies
 
+ * Submission
  * Lucid dreaming
  * Movies/series/music
  * Gaming
