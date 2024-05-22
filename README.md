@@ -35,7 +35,7 @@ And my third favourite was a dream in which I noticed the adam's apple of a pret
 <!--Mindꟻuɔꓘ Op. Łøяεηzỡ✨ ⧸❤️❤️💔⧸
 Oneironaut, traveler of hidden realities and creator of the great beyond.
 Spreads joy across all space-time to reveal the everlasting beauty of LIFE !-->
-[Link Statistics](https://is.gd/stats.php?url=README):bar_chart: | [Instagram](https://www.instagram.com/infinity_surfer):camera:
+[Link Statistics](https://is.gd/stats.php?url=README):bar_chart: | [Instagram](https://www.instagram.com/infinity_surfer7):camera:
 
 ## Miscellaneous
 
