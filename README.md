@@ -3,30 +3,24 @@
 𝔼ℓ is my alternative nickname, which is short for Lorel (a feminine version of my real name).  
 My real name is 𝐋 øяεηzo (nickname: lozoo). It'd have been nice to have Sunshine as my last name^^
 
-I only express myself feminine digitally (on occasion). I'd say that I'm about 11% female.  
-You won't rly notice anything girly about me physically, but sure that might be about 0.5% extra.  
-Paramale = identifying as both male and female, but mostly male (it's short for paragender male).  
-Femsexual = Attracted to cisgirls and all natural tgirls (I'd say fem stands for femininity).  
-Cisgender = A person whose gender identity corresponds to their sex assigned at birth.
-
 <details> 
 <summary>${\textsf{\color{#1383f2}"CLICK HERE" to find out more}}$</summary>
 
 ## Guhl
 
-I see transgender (female) as a third gender, an unique gender on its own. So I see them as nonbinary at the same time (paragender too btw but ordinarily we hardly look unique imo, and only cisgender as binary). I can handle a masculine voice but it's not something I find attractive, it's just something I try to get used to, and getting a voice change is definitely worth it imo. Small boobs, the adam's apple and a dick of a tgirl isn't masculine to me at all, so that stuff is more than fine. The rest I expect to be feminine as well before I find them attractive and start having feelings of love, and sexually ♡⩊♡
+I see trans women as a third gender, an unique gender with its own natural look. It's great! So I see them as nonbinary at the same time and only cisgender as binary. I totally support HRT and voice change, but I have nothing against trans women who might be a little masculine in some way. I tend to like it and often I don't even notice XD However, small boobs, the adam's apple and a dick of trans women isn't masculine to me at all, so that stuff is more than fine ♡⩊♡ They are beautiful just the way they are but I wish there were more trans women in society. Because I doubt that I'll ever meet one. I have a feminine side too, I think that's why I like feeling submissive lol. It makes interactions digitally and irl more fun when I get to express myself a lil feminine (but very submissive). Makes the kinky stuff that I'm into feel pretty normal, and makes me try fancy colors, seeing me in different lights and to appreciate myself more. Yeah it has grown over the years but transitioning is a big deal, no clue if I would have it in me to do that. I'm kind of fine the way I am, life is complicated.
 
-If you look like a dude, I wouldn't be into you, as simple as that. I expect ppl who call themselves transgender to take hormones, then I know they're serious about the transition and feel at ease spending time with them. I guess you could say I like girls with something extra, tgirls come with that by default hehe. Cisgirls obviously do not. But I sure like it when cisgirls get about 1-2cm of fluff on their 🌸 Partially shaved isn't sexy at all, quite the opposite actually but trimming is fine, or just shave everything and regrow. A crotch bulge of a tgirl is totally normal to me and shouldn't be something to be ashamed of, it doesn't always have to be sexy irl. But to me it's super hot seeing them horny in swimwear or whatever, appropriate or not. Tucking seems rather crazy to me, it should be in a normal position that's comfortable.
+I guess you could say I like my women with something extra, trans women come with that by default hehe. Cis women obviously do not. But I sure like it when cis women get about 1-2cm of fluff on their 🌸 Partially shaved isn't sexy to me at all, quite the opposite actually but trimming is fine, or just shave everything and regrow. A crotch bulge of a trans women is totally normal to me and shouldn't be something to be ashamed of, it doesn't always have to be sexy irl. But to me it's super hot seeing them horny in swimwear or whatever, appropriate or not. Tucking seems rather crazy to me, it should be in a normal position that's comfortable.
 
 ## Relationships
 
-Why am I like this you might think XDD Well, I'm not to blame. It's b/c I have tried the love thing. The relationship lasted almost a decade. Now I focus more on the fun aspect. I'd like to be submissive when I get a trans gf. I'll let her decide when she wants head. She may even tie my hands behind my back and put a mouth spreader on me while I kneel if she wishes. I was very serious in the past about having a strong bond made out of love. And wanted it all to be perfect, creating a future together.. But it was a child's dream. Now it's rly just a bonus that I won't depend on for my happiness. But rather just enjoy as it comes and goes. I'd say that I'm still as loyal as ever though.
+Why am I like this you might think XDD Well, I'm not to blame. It's b/c I have tried the love thing. The relationship lasted almost a decade. Now I try to focus a little bit more on the fun aspect. I'd like to be submissive when I get a trans gf or cis bf. I'll let them decide when they want head. They may even tie my hands behind my back and put a mouth spreader on me while I kneel if they wish. I was very serious in the past about having a strong bond made out of love. And wanted it all to be perfect, creating a future together.. I'm not sure if I can really depend on anyone's love anymore. I have trust issues and fear of abandonment. But I want a partner to cuddle up, real real bad XD I hope someone will stick with me. Someone to match my crazy, that would be nice.
 
-To me a bond made out of love should last forever, even when beauty fades. That nice feeling is just how it starts, not really something to depend on. It's about the bond, the promises partners make, resolving issues rather than giving up, and staying loyal ofc. Sticking by eachother's side for a lifetime, through good and bad, that is real love 😊 Even though I'm inexperienced with tgirls, I do prefer them now. My love for them comes easy. Cisgirls on the other hand, I'd need a bit of a miracle to feel love again. But I definitely don't want kids anymore, the world sucks too much.
+To me a bond made out of love should last forever, even when beauty fades. That nice feeling is just how it starts, not really something to depend on. It's about the bond, the promises partners make, resolving issues rather than giving up, and staying loyal ofc. Sticking by eachother's side for a lifetime, through good and bad, that is real love 😊 Even though I'm inexperienced with trans women, I do prefer them the most but realistically I think I'll probably get something with a man instead. My love for both of them comes easy. Cis women on the other hand, I'd need a bit of a miracle to feel love again. But I definitely don't want kids anymore, the world sucks too much.
 
 ## Dreams
 
-I've had 4 amazing dreams about tgirls that mean a lot to me! Especially b/c they are my first few intimate experiences, even though I hadn't been with any tgirls irl yet. This feels like a new beginning tbh. My favourite was about a special blondine I hugged. I felt her body and its heat, it was truly the best and longest hug I have ever had in my life! In my second favourite I went on my knees and got faceforked^^ It was so real, I could actually feel the tactile sensation.. I hope next time I'll get to try 69. She looked a bit unusual tho; tattoos all over her body and I'm pretty sure she had dark brown hair with a slight blue tint to it, and her androgynous face wasn't all that attractive. But I loved it hehe.
+I've had 4 amazing dreams about trans women that mean a lot to me! Especially b/c they are my first few intimate experiences, even though I hadn't been with any irl yet. This feels like a new beginning tbh. My favourite was about a special blondine I hugged. I felt her body and its heat, it was truly the best and longest hug I have ever had in my life! In my second favourite I went on my knees and got faceforked^^ It was so real, I could actually feel the tactile sensation.. I hope next time I'll get to try 69. She looked a bit unusual tho; tattoos all over her body and I'm pretty sure she had dark brown hair with a slight blue tint to it, and her androgynous face wasn't all that attractive. But I loved it hehe.
 
 And my third favourite was a dream in which I noticed the adam's apple of a pretty brunette, at which point I got a little excited and then she kissed me out of nowhere, which was also very real!! And lasted long enough for me to be satisfied. I could feel her lips and tongue moving against mine, so nice! At first it was as if I forgot how to breathe lol. My fourth is something I wouldn't do in real life but yeah I liked it nonetheless :3 A hot blondine who did it to me from behind.. Quite long, sheez. And again I felt everything. There was a time when I had heavenly dreams on a daily basis btw.
 
@@ -41,10 +35,11 @@ Spreads joy across all space-time to reveal the everlasting beauty of LIFE !--
 
 ### I LOVE UNITY
 
-Parameter                             | Value
+Gender                                | 😍
 --------------------------------------|------------------------------------------
-ENTER                                 | N/A
-THE VOID                              | N/A
+CISGENDER WOMEN                       | MAYBE
+ALL NATURAL TRANS WOMEN               | YES
+CISGENDER MEN                         | YES
 
 ## Main hobbies
 
